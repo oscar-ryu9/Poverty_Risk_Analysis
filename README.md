@@ -1,1 +1,1 @@
-Creator Karanpal Sekhon Peirui Su
+Creator Oscar Ryu, Karanpal Sekhon, Peirui Su
